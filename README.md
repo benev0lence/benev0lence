@@ -12,3 +12,5 @@
 
           ⌦   `` 𝗜 𝖻𝖾𝗍 𝗛𝗘 '𝗅𝗅 𝗐𝗂𝗉𝖾 𝘵𝗁𝖾  𝘧𝘭𝘰𝘰𝘳 
                𝙒𝙄𝙏𝙃  𝗠𝗘 !  ` ⏱️⃝◇
+                    
+                    [rentry !](https://rentry.co/lohensprincey)
